@@ -1,1 +1,1 @@
-### This is Repository servers the purpose of storing all my coding related notes, drafts, messages,etc. Issues created in these repositories are a form of noting down things which I want to refer someday in future
+This is Repository servers the purpose of storing all my coding related notes, drafts, messages,etc. Issues created in these repositories are a form of noting down things which I want to refer someday in future
