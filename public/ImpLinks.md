@@ -11,9 +11,9 @@
 
 ### Peta Jensen
 
-- [Stryker - Episode 2 - License to Drill 480p](https://download-private-ht.project1content.com/f5b/1e4/226/ab3/491/1ad/4e5/935/0b4/5c4/de/video/scene_480p.mp4?validto=1610429461&ip=91.134.2.190&hash=iR7UNgn0Foqew%2Bnnl8G3Q7zZMB0%3D&filename=stryker-episode-2-license-to-drill_480p.mp4)
+- [Stryker - Episode 2 - License to Drill 480p](https://download-private-ht.project1content.com/f5b/1e4/226/ab3/491/1ad/4e5/935/0b4/5c4/de/video/scene_320p.mp4?validto=1610433818&ip=91.134.2.190&hash=SwhnFrkYTcLGYfsbKsOdY0XIYPI%3D&filename=stryker-episode-2-license-to-drill_320p.mp4)
 
-- [Stryker - Episode 5 - The Man with the Golden Love Gun](https://download-private-ht.project1content.com/824/312/37f/7b3/4d9/9a2/135/f43/cea/dea/b1/video/scene_480p.mp4?validto=1610429420&ip=91.134.2.190&hash=sx2AlbFiDmODLunAmIDsxnXNCYQ%3D&filename=stryker-episode-5-the-man-with-the-golden-love-gun_480p.mp4)
+- [Stryker - Episode 5 - The Man with the Golden Love Gun](https://download-private-ht.project1content.com/824/312/37f/7b3/4d9/9a2/135/f43/cea/dea/b1/video/scene_480p.mp4?validto=1610433938&ip=91.134.2.190&hash=u1WhPlXQng8w1%2BD38fZ1QISFXvg%3D&filename=stryker-episode-5-the-man-with-the-golden-love-gun_480p.mp4)
 
 - [Lock And Load - Episode 2 - The Deal](https://download-private-ht.project1content.com/97d/c89/909/555/451/a9f/a14/141/5f7/6a0/79/video/scene_480p.mp4?validto=1610429622&ip=91.134.2.190&hash=%2FFggkusoH%2BbXMsewgYGk4Ejb2vc%3D&filename=lock-and-load-episode-2-the-deal_480p.mp4)
 
